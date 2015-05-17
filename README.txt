@@ -1,1 +1,1 @@
-This is my project.
+This project is to help me learn about working with repositories.
