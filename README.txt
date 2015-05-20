@@ -1,3 +1,3 @@
 This is a test.
 
-When some wild eyed, eight foot tall maniac grabs your neck, taps the back of your favorite head up against the barroom wall, and he looks you crooked in the eyes and he asks you if you're paid your dues... You just stare that big sucker right back in the eye and you remember what ol' Jack Burton always says at a time like that, "Have you paid your dues, Jack? Yessir, the check is in the mail."
+When some wild eyed, eight foot tall maniac grabs your neck, taps the back of your favorite head up against the barroom wall, and he looks you crooked in the eyes and he asks you if you've paid your dues... You just stare that big sucker right back in the eye and you remember what ol' Jack Burton always says at a time like that, "Have you paid your dues, Jack? Yessir, the check is in the mail."
